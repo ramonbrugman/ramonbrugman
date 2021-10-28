@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ramonbrugman
+- 👋 Hi, I’m Ramon, Welcome at my profile page
 - 👀 I’m interested in ... the world in a better place
 - 🌱 I’m currently learning ... to backtrack whats happening in my system
 - 💞️ I’m looking to collaborate on ... the future where my cryptos dont get nekked
